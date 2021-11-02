@@ -1,0 +1,1 @@
+# cool-future.com
